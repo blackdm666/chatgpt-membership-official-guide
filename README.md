@@ -12,7 +12,7 @@
 
 ## 推荐说明
 
-https://sms.88fk.net
+https://sms.88fk.org
 
 ## 文件
 
